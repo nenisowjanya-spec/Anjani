@@ -57,4 +57,6 @@ I enjoy transforming raw data into meaningful insights that support business dec
 ## 📫 Contact
 - Email: nenisowjanya@gmail.com
 - Location: Ajax, ON
-- LinkedIn: (add your link here)
+- LinkedIn: linkedin.com/in/sowjanya-gangineni-564b39373
+
+
